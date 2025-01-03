@@ -4,7 +4,6 @@ https://ke.qq.com/course/2738602
 
 https://edu.51cto.com/course/23845.html
 
-咨询QQ727585266，平均月薪【25K+】 学习人数超过【100W+】
 
 ```
 
